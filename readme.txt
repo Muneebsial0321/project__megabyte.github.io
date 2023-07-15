@@ -1,0 +1,2 @@
+this is just a template not an actual websites .it does take you to other actual websites with their copy rightsreserved.
+the purpose of this webite it just expermintal and educational and educational
